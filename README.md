@@ -1,1 +1,7 @@
-# 10-5mingit06-kayy
+10-5mingit06-kayy
+
+idk
+===
+
+
+
